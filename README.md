@@ -1,0 +1,1 @@
+# macroshot_privacy_policy
